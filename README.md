@@ -2,4 +2,4 @@
 
 <p align=center> <img width="400" height="300" alt="VHW3c2" src="https://github.com/user-attachments/assets/165eb9df-6824-407b-a8d7-feccee2959f4" />
 
-**<p align=center> [Inquiries? I may answer. ☻](https://youareanidiot.atabook.org/)**
+**<p align=center> [Inquiries? I'll answer. ☻](https://youareanidiot.atabook.org/)**
